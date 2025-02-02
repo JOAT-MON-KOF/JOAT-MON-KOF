@@ -1,3 +1,2 @@
-- 👋 Hi, I’m @JOAT-MON-KOF
 - 📫 How to reach me: Find me on X
-- ⚡ Fun fact: I do random shit.
+
